@@ -5,4 +5,4 @@
 发帖解决！
 如有发现使用本App进行违法操作，后果自负！
 by：奇游猴闻团队
-qiyouhouwen_team@126.com
+qiyouhouwen_team@126.co
